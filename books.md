@@ -23,6 +23,21 @@ Pokriva sledece knjige:
 
 Ukupna vrenost £200
 
+[Yachtmaster Scheme eBook Subscription (ES-Y)](https://www.rya.org.uk/shop/p/yachtmaster-scheme-ebook-subscription) - £51.00
+
+Pokriva:
+
+- An Introduction to Radar (E-G34) - £10.49
+- Competent Crew Skills (E-CCPCN) - £14.49
+- Boat Handling for Sail and Power (E-G68) - £18.99
+- An Introduction to Navigation (E-G77) - £16.99
+- Navigation Handbook (E-G6) - £20.99
+- Training Almanac - Northern (E-TAN) - £9.49
+- Day Skipper Handbook Sail (E-G71) - £21.49
+- Yacht Sailing Techniques (E-G94) - £17.99
+
+Ukupna vrednost £130
+
 ### Knjige
 
 [Handy Guide to Marine Radio (E-G22)](https://www.rya.org.uk/shop/p/communications/rya-handy-guide-to-marine-radio-ebook) - £9.49
