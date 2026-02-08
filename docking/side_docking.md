@@ -87,3 +87,5 @@
 2. [Docking Techniques Seminar](https://www.youtube.com/watch?v=PoGMAEjiHmU)
 
 3. [SavvySalt's Ultimate Guide to Dockline Handling: Part I](https://www.youtube.com/watch?v=Y6aR03uffyw)
+
+4. [How To Dock a Boat at a T-Head (A Complete Guide)](https://www.youtube.com/watch?v=a7UXdIj81x8)
